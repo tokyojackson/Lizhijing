@@ -22,7 +22,7 @@ Work experience
 
 * 2021: Postdoctoral fellow
   * Chinese University of HongKong
-  * Supervisor: Professor Hepin jia
+  * Supervisor: Professor Hepin Jia
   
 
 
